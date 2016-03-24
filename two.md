@@ -1,1 +1,1 @@
-here you can access [Daniayl Ahmed's](https://www.facebook.com/daniyal.ahmed.75)'s profile and his ![pic](D:\Daniyal\prac\Daniyal.jpg) 
+here you can access [Daniayl Ahmed's](https://www.facebook.com/daniyal.ahmed.75) profile and his ![pic](https://github.com/Daniyal12333/MarkDown/blob/master/Daniyal.JPG) 

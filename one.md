@@ -4,7 +4,7 @@
 ###### heading 6 ######
 
 
-** Aashir ul Haque **
+**Aashir ul Haque**
 
 
-* Daniyal Ahmed *
+*Daniyal Ahmed*
