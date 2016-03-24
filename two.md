@@ -1,0 +1,1 @@
+here you can access [Daniayl Ahmed's](https://www.facebook.com/daniyal.ahmed.75)'s profile and his ![pic](D:\Daniyal\prac\Daniyal.jpg) 
