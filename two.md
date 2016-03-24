@@ -1,1 +1,1 @@
-here you can access [Daniayl Ahmed's](https://www.facebook.com/daniyal.ahmed.75) profile and his [pic](file:///D:/Daniyal/prac/Daniyal.JPG) 
+here you can access [Daniayl Ahmed's](https://www.facebook.com/daniyal.ahmed.75) profile and his [pic](https://scontent-mrs1-1.xx.fbcdn.net/hphotos-xfa1/v/t1.0-9/11081385_989806937711321_8340283614002020488_n.jpg?oh=1e7c5ee6cd7ad9c1c1702f2ef319bbe6&oe=574FC772) 
